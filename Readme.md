@@ -1,4 +1,4 @@
-![AREmoji_20221017_220501_48138](https://user-images.githubusercontent.com/97546871/196272692-7eadfbea-2a26-4e1f-8bb2-29c4c66d9fad.png)
+![AREmoji_20221108_222029_28095](https://user-images.githubusercontent.com/97546871/200678091-c832753a-ab0c-4075-a640-5aae77192574.png)
 
 
 
